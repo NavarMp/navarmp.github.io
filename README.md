@@ -1,1 +1,1 @@
-<h1>I deserve nothing, but still allah gives me everything. Alhamdulillah.</h1>
+I'm Muhammed Navar, Co-founder and Graphic designer of Team Komanga.
